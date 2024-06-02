@@ -1,0 +1,1 @@
+# Generalization_Theorem_Description_Automorphisms_Total_Graph_of_Matrix_Ring_to_Rectangular_Matrices
